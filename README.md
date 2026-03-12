@@ -1,1 +1,3 @@
-# Video-Editing-Portfolio-LegitGamingGR
+─────────────────────────────────────────────────────────────────────────────────────────
+## 🎮 YouTube Gaming Videos | Channels: LegitGamingGR / More LegitGamingGR
+─────────────────────────────────────────────────────────────────────────────────────────
